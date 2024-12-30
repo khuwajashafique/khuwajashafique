@@ -7,7 +7,7 @@ I hold a MA in Public Policy from University of Karachi and an MPhil in Public P
 
     The political economy of fusion energy
     Net-zero strategies and their implications for industrial policy
-    The evolving role of open science in fostering Industry 5.0 </ul>
+    The evolving role of open science in fostering Industry 5.0
     Interests
 
     Beyond my academic pursuits, I am passionate about:
