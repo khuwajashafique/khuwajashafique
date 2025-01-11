@@ -7,10 +7,7 @@ I hold a MA in Public Policy from University of Karachi and an MPhil in Public P
     
 You can reach out to me through:
 
-Email: shafique.soomro@outlook.com
-
-LinkedIn: Khuwaja Shafique Ahmed
-
-Twitter: @shafique_soomro
-
-GitHub: https://github.com/khuwajashafique
+**Email**: [shafique.soomro@outlook.com](mailto:shafique.soomro@outlook.com)  
+**LinkedIn**: [Khuwaja Shafique Ahmed](https://www.linkedin.com/in/khuwaja-shafique-ahmed)  
+**Twitter**: [@shafique_soomro](https://twitter.com/shafique_soomro)  
+**GitHub**: [Khuwaja Shafique](https://github.com/khuwajashafique)
