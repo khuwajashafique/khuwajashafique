@@ -9,5 +9,4 @@ I hold a **MA in Public Policy** from University of Karachi and an **MPhil in Pu
 You can reach out to me through:  
 - **Email**: [Khuwaja Shafique Ahmed](mailto:shafique.soomro@outlook.com)  
 - **LinkedIn**: [Khuwaja Shafique Ahmed](https://www.linkedin.com/in/khuwajashafique)  
-- **Twitter**: [@shafique_soomro](https://twitter.com/shafique_soomro)  
-- **Blue Sky**: [Khuwaja Shafique Ahmmed](https://bsky.app/profile/shafique.bsky.social))
+- **Blue Sky**: [Khuwaja Shafique Ahmed](https://bsky.app/profile/shafique.bsky.social)
