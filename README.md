@@ -6,8 +6,3 @@ I’m a third year **PhD student in Science, Technology, and Innovation Policy**
 
 I hold a **MA in Public Policy** from University of Karachi and an **MPhil in Public Policy** from Pakistan Institute of Development Economics, Islamabad. My journey in academia has been driven by a desire to explore how public policy and innovation systems can foster societal progress. 
     
-
-You can reach out to me through:  
-- **Email**: [Khuwaja Shafique Ahmed](mailto:shafique.soomro@outlook.com)  
-- **LinkedIn**: [Khuwaja Shafique Ahmed](https://www.linkedin.com/in/khuwajashafique)  
-- **Twitter/X**: [Khuwaja Shafique Ahmed](https://www.x.com/shafique_soomro)  
